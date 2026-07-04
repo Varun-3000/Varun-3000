@@ -10,4 +10,4 @@
 
 ## 📫 Contact
 - Email: varunsanjeev.careers@gmail.com
-- LinkedIn: [linkedin.com/in/varunsanjeev](https://linkedin.com/in/varunsanjeev)
+- LinkedIn: [linkedin.com/in/varunsanjeev](https://linkedin.com/in/varun-sanjeev)
